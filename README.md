@@ -1,1 +1,1 @@
-# My-first-repository-of-2023-
+# My-first-repository-of-2023
